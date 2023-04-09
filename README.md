@@ -1,1 +1,1 @@
-# karvo7.github.io
+# Welcome to my digital house. Stratos Karvo here!!
